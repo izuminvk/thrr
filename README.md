@@ -5,3 +5,5 @@ This .docx file (MS word and Google sheets supported) for public use but if you 
 ![IMG_20220701_215258](https://user-images.githubusercontent.com/87412214/176934089-b4861d5d-8b16-48cb-81fc-c3175ea14984.jpg)
 
 [Line](https://line.me/ti/p/aDcsyn9wMe)
+![Line](https://user-images.githubusercontent.com/87412214/176986025-653b3a54-3cc8-4cd3-8234-7022b18b170a.jpg)
+
